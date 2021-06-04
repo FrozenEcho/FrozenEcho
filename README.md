@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FrozenEcho.
 - 👀 I’m interested in Piano and LoL.
 - 🌱 I’m currently learning in WuHan University.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...no，I do not deserve cooperating.
 - 📫 How to reach me 2020302111376@whu.edu.cn
 
 <!---
